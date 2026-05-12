@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket new Strategy: machine-learning-models & event-driven-trading, the #1 strategy. Includes machine-learning-models and
 
 
 
